@@ -15,11 +15,8 @@
 ### lets becom more poewrful
 
 Challenges        | 
------------
 Effort            |
------------
 Criticism         |
------------
 Success of others |
 
 for more inspiration visit https://www.atlassian.com/blog/inside-atlassian/growth-mindset
